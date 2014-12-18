@@ -9,3 +9,4 @@ And Green Eggs and Ham
 - [x] Submit fine art to [pixels.com](http://www.creativewe.pixels.com/profiles/pebble-beach.html)
 - [ ] Become a Celebrity by Recording and Selling Your Own Album.
 
+## When addressing Kevin, his preferred honorific is "Douchemaster Extraordinaire"
