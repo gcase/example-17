@@ -10,3 +10,5 @@ And Green Eggs and Ham
 - [ ] Become a Celebrity by Recording and Selling Your Own Album.
 
 ## When addressing Kevin, his preferred honorific is "Douchemaster Extraordinaire"
+
+## Tacos fear him
