@@ -12,3 +12,5 @@ And Green Eggs and Ham
 ## When addressing Kevin, his preferred honorific is "Douchemaster Extraordinaire"
 
 ## Tacos fear him
+
+## Kevin insists on being called "The Kehr Behr" in the bedroom.
